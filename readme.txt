@@ -1,0 +1,1 @@
+ovo sam otkucao nakon prvog komita
